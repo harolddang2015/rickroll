@@ -1,1 +1,1 @@
-this wont work on mobile. also, download the "hello.exe" and do as the tutorial says, or, open the application, choose the key you need to press to rickroll like the letter "w" and press go.WHen someone press that key, it will rickroll them.Also you need the internet for this or else it wont work.
+this wont work on mobile. also, download the "hello.exe" and, open the application, choose the key you need to press to rickroll like the letter "w" and press go.WHen someone press that key, it will rickroll them.Also you need the internet for this or else it wont work.
